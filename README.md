@@ -1,4 +1,4 @@
-Support: https://discord.gg/nqMGxU86YT
+
 
 Autoissa on parantamista mutta paras mitä ilmasiks saa :) 
 
