@@ -1,10 +1,14 @@
 Support: https://discord.gg/nqMGxU86YT
 
-Autoissa on parantamista mutta paras mitä ilmasiks saa :)
+Autoissa on parantamista mutta paras mitä ilmasiks saa :) 
+
+Best finnish *free* car 😎
 
 15.8 Bmw vompatti poistettu, Syystä: Rework tulossa
 
 Tulossa paremmat versiot jossainkohtaa
+
+Better version coming soon
 
 - SteffeModding
 
